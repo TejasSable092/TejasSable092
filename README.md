@@ -8,6 +8,7 @@
 - 📫 How to reach me **tejassable092@gmail.com**
 
 - 📄 Know about my experiences [tejas sable](tejas sable)
+<img src="https://miro.medium.com/max/1360/0*7Q3yvSIv_t0ioJ-Z.gif" align="right" width="400" hight="200px" alt="coding"> <img/>
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
